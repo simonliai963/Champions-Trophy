@@ -1,4 +1,4 @@
-# Smartcric Live *IND vs PAK* Champions Trophy 2025 Watch in HD
+# ((Smartcric)) Live *IND vs PAK* Champions Trophy 2025 Watch in HD
 
 Watch ICC Champions Trophy 2025 live streaming on Smartcric. Enjoy free, HD cricket streaming on iPhone/iPad and Android. Never miss a match! Smartcric Live *IND vs PAK* Champions Trophy 2025 Watch in HD ; Pakistan vs India Live 5th Match at Dubai Champions Trophy, PAK vs IND Live @ Ptv Sports.
 
