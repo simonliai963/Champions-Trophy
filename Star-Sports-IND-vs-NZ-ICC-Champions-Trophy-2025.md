@@ -1,5 +1,9 @@
 # Star Sports India vs New Zealand Live: Match Preview & Streaming Details 
 
+## ⏬🌐🌐📌⬇ [Watch Star Sports Live Champion Trophy 2025](https://ptvsportshd.net/smartcric-hd-cricket/) ⬇📌🌐🌐⏬
+
+|![ICC-Champions-Trophy-2025](https://github.com/user-attachments/assets/eb0c49aa-ae7e-4ae0-a94f-0153617a517c)| 
+
 Cricket fans worldwide are eagerly awaiting the high-stakes **ICC Champions Trophy 2025** clash between **India and New Zealand**, scheduled for **March 2 in Dubai**. The match promises intense competition as both teams feature star-studded lineups.  
 
 ## 📺 Where to Watch IND vs NZ Live?  
