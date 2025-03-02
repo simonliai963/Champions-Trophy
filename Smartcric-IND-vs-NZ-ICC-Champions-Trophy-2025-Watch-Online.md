@@ -1,4 +1,4 @@
-# Smartcric Live IND vs NZ ICC Champions Trophy 2025 Watch Online in HD
+# Smartcric Live India vs New Zealand ICC Champions Trophy 2025 Watch Online in HD
 
 Watch ICC Champions Trophy 2025 live on Smartcric! Enjoy free HD cricket streaming with English and Hindi commentary. Don't miss a moment of the action!
 
