@@ -4,9 +4,6 @@
 
 ## ⏬🌐🌐📌⬇ [Click Here CCL 2025 Final Live Now](https://ptvsportshd.net/smartcric-hd-cricket/) ⬇📌🌐🌐⏬
 
-|![ICC-Champions-Trophy-2025](https://github.com/user-attachments/assets/eb0c49aa-ae7e-4ae0-a94f-0153617a517c)| 
-
-
 
 
 Punjab De Sher Vs Chennai Rhinos Live Streaming, CCL 2025 Final: How to Watch Celebrity Cricket League on TV and Online? Punjab De Sher Vs Chennai Rhinos Live Streaming, CCL 2025 Final: How to Watch Celebrity Cricket League on TV and Online?
