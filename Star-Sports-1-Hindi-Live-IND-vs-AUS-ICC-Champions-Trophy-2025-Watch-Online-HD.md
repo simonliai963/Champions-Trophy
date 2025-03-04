@@ -1,8 +1,8 @@
-# Star Sports 1 Hindi Live IND vs NZ ICC Champions Trophy 2025 Watch Online in HD
+# Star Sports 1 Hindi Live IND vs AUS ICC Champions Trophy 2025 Watch Online in HD
 
 Watch ICC Champions Trophy 2025 live on Smartcric! Enjoy free HD cricket streaming with English and Hindi commentary. Don't miss a moment of the action!
 
-## ⏬🌐🌐📌⬇ [Watch Smartcric Live Champion Trophy 2025](https://ptvsportshd.net/smartcric-hd-cricket/) ⬇📌🌐🌐⏬
+## ⏬🌐🌐📌⬇ [Watch Star Sports Hindi Live Champion Trophy 2025](https://ptvsportshd.net/star-sports-1-hindi-hd/) ⬇📌🌐🌐⏬
 
 |![ICC-Champions-Trophy-2025](https://github.com/user-attachments/assets/eb0c49aa-ae7e-4ae0-a94f-0153617a517c)| 
 
