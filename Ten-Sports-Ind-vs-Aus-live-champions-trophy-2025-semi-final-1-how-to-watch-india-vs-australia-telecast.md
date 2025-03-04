@@ -1,7 +1,13 @@
-IND vs AUS Live Streaming, Champions Trophy 2025, Semi-Final 1: How to Watch India vs Australia on TV and Online? IND vs AUS Live Streaming, ICC Champions Trophy 2025, Semi-Final 1: The business end of the ICC Champions Trophy 2025 is here, and what better way to kick off the semi-finals than a high-octane clash between India and Australia?
+# Ten Sports Live ((IND vs AUS)) Semi-Final 1 ICC Champions Trophy 2025
+
+IND vs AUS Live , Champions Trophy 2025, Semi-Final 1: How to Watch India vs Australia on TV and Online? IND vs AUS Live Streaming, ICC Champions Trophy 2025, Semi-Final 1: The business end of the ICC Champions Trophy 2025 is here, and what better way to kick off the semi-finals than a high-octane clash between India and Australia?
+
+## ⏬🌐🌐📌⬇ [Watch Ten Sports Live Champion Trophy 2025](https://ptvsportshd.net/ten-sports/) ⬇📌🌐🌐⏬
+
+|![ICC-Champions-Trophy-2025](https://github.com/user-attachments/assets/eb0c49aa-ae7e-4ae0-a94f-0153617a517c)| 
 
 
-India vs Australia Full Squads 
+## India vs Australia Full Squads 
 
 India Squad Rohit Sharma (c), Shubman Gill, Virat Kohli, Shreyas Iyer, Axar Patel, KL Rahul (wk), Hardik Pandya, Ravindra Jadeja, Mohammed Shami, Kuldeep Yadav, Varun Chakravarthy, Rishabh Pant, Washington Sundar, Arshdeep Singh, Harshit Rana 
 
