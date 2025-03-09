@@ -1,6 +1,6 @@
 # Star Sports 1 Hindi Live ((IND vs NZ Final)) ICC Champions Trophy 2025 Online in HD
 
-## ⏬🌐🌐📌⬇ [Watch Star Sports Live Champion Trophy 2025](https://ptvsportshd.net/) ⬇📌🌐🌐⏬
+## ⏬🌐🌐📌⬇ [Watch Star Sports Live Champion Trophy 2025](https://ptvsportshd.net/star-sports-1-hindi-hd/) ⬇📌🌐🌐⏬
 
 |![ICC-Champions-Trophy-2025](https://github.com/user-attachments/assets/eb0c49aa-ae7e-4ae0-a94f-0153617a517c)|
 
