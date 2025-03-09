@@ -1,4 +1,4 @@
-# Mobilecric India vs NZ Live 2025 CT Final: How to Watch Online
+# Mobilecric ((Ind vs NZ)) Live 2025 CT Final: How to Watch Online
 
 ## ⏬🌐🌐📌⬇ [Watch Mobilecric Live Champion Trophy 2025](https://ptvsportshd.net/smartcric-hd-cricket/) ⬇📌🌐🌐⏬
 
